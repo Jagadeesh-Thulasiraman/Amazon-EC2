@@ -2,8 +2,8 @@
 
 # Author
 
-## Name: DODLA SUSMITHA
-## Register Number: 212224110016
+## Name: Jagadeesh T
+## Register Number: 212224020017
 
 ## Objective
 
